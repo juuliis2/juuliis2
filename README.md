@@ -10,4 +10,4 @@ Meu nome é Júlia Silva
 
 juliasoliveira166@gmail.com
 
-![]((https://media1.tenor.com/m/Myi3a3NLehYAAAAC/gato-pato.gif))
+![](https://media1.tenor.com/m/Myi3a3NLehYAAAAC/gato-pato.gif)
