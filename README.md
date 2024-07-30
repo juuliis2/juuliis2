@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil ^_^
+## Boas vindas ao meu perfil !!
 
 Meu nome é Júlia Silva
 
